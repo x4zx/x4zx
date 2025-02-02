@@ -1,1 +1,1 @@
-## Hey, my name's Egor👋 I'm Python Developer🐍 from Ukraine💙💛
+## Hey, my name's Yehor👋 I'm Python Developer🐍 from Ukraine💙💛
